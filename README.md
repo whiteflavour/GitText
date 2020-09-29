@@ -1,1 +1,2 @@
 # GitText
+Hello, goodbye。
