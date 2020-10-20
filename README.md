@@ -1,2 +1,3 @@
 # GitText
-Hello, goodbye。
+F**k!!
+NO NO NO!!
