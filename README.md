@@ -1,3 +1,3 @@
 # GitText
 F**k!!
-NO NO NO!!
+去**的
